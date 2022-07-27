@@ -29,3 +29,11 @@
 
 * [2022-02-26-flight-image12-high-view-of-San-Vicente.jpg](2022-02-26-flight-image12-high-view-of-San-Vicente.jpg)  High altitude photo with San Vicente
   resevoir and tall snow-capped SoCal mountains.
+
+* [Images_7-2-2022.zip](Images_7-2-2022.zip) entire flight series.  outstanding
+  examples include:
+
+    * image9.jpg - neighborhood at takeoff
+    * image34.jpg - SD bay/Silver Strand/Coronado from altitude
+    * image49.jpg - SD bay/Coronado and former Top Gun airfield
+    * image50.jpg - good higher altitude SD bay/Silver Strand/Coronado
