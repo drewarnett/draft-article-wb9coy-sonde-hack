@@ -19,3 +19,13 @@
 * [internal-camera-install-2.jpg](internal-camera-install-2.jpg)  internal
   camera install with camera peeking out of hole.  From WB9COY email
   2022-01-23.
+
+* [2022-02-13-flight-image27-SD-bay.jpg](2022-02-13-flight-image27-SD-bay.jpg)
+  early flight photo with great shot of recognizable SD bay.  a few artifacts
+  prior to team working on improved RX.  From WB9COY email 2022-02-13.
+
+* [2022-02-26-flight-image5-low-over-black-mtn.jpg](2022-02-26-flight-image5-low-over-black-mtn.jpg)  Early climbing out with great view of mountain biking
+  paradise Black Mountain.  From WB9COY email 2022-02-26.
+
+* [2022-02-26-flight-image12-high-view-of-San-Vicente.jpg](2022-02-26-flight-image12-high-view-of-San-Vicente.jpg)  High altitude photo with San Vicente
+  resevoir and tall snow-capped SoCal mountains.
